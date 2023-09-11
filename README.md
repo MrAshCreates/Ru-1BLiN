@@ -1,5 +1,5 @@
 # RulBlin / Ru-1 BLiN
-RulBlin is a STEM-inspired experience filled with math and science References and terms to use to survive, thrive, and make others die. 
+RulBlin is a STEM-inspired experience filled with math and science References and terms that will be used to survive, thrive, and make others die. 
 
 **Title Meaning:** "Rulblin" means the word "Rule" and was inspired by a video (linked below). It was combined with other meanings and variations of "Rule" until I found a title that sounded interesting. Pronounce it like "Rule Blend" with a silent "d," but any pronunciation is valid as it is a made-up word. I'm considering adding a "-1" to the title in different positions to align with the game's concepts, such as "Ru-1 Blin" or "Rul B-1in."
 
