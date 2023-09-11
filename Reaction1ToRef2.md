@@ -24,11 +24,11 @@ and the number one
 okay
 one does equal one solid
 
-[Music]
+
 
 okay one plus one is two
 
-[Music]
+
 
 one plus one plus one is three
 is this gonna test my mental arrangement
@@ -36,7 +36,7 @@ is this gonna test my mental arrangement
 okay we're up to ten we're up to ten all
 right
 
-[Music]
+
 
 oh
 he's had enough of the ones I like it if
@@ -50,11 +50,11 @@ all right so we're on Triple figures
 we've got up to 100
 he looked pretty tired
 
-[Music]
+
 
 now he's subtracting
 
-[Music]
+
 
 oh oh oh this is a pause moment
 so the minus one became e to the I Pi I
@@ -75,16 +75,16 @@ okay he's running away as it does
 who doesn't get annoyed when they lose
 their e right
 
-[Music]
+
 
 neat
 
-[Music]
+
 
 oh he's figured out multiplication
 interesting
 
-[Music]
+
 
 now we've got division okay
 I'm gonna we're gonna pause again
@@ -103,7 +103,7 @@ this is just going to get more and more
 advanced I genuinely have no idea okay
 Properties of Powers
 
-[Music]
+
 
 oh
 
@@ -113,18 +113,18 @@ well
 glad he figured that out stopped that
 one early
 
-[Music]
+
 
 Powers okay
 
 indices coming in nice yep
 properties of powers very good
 
-[Music]
+
 
 oh negative Powers lovely
 
-[Music]
+
 
 square roots fractional powers
 irrational number there's another one
@@ -139,7 +139,7 @@ all right
 wine time
 Wine Time
 
-[Music]
+
 
 oh oh okay
 I cubed
@@ -169,7 +169,7 @@ Theta plus I sine Theta very nice very
 blinking you'll miss it for that one
 Sword Fight
 
-[Music]
+
 
 foreign
 I can't believe I'm watching a sword
@@ -217,7 +217,7 @@ go
 larger and larger plane okay
 increase the radius thing grows very
 good
-[Music]
+
 there we go oh oh oh new one new one
 so it
 went to the power series then it
@@ -298,7 +298,7 @@ breaking Mass
 now they're trying to make friends
 beautiful
 
-[Music]
+
 
 ice
 so if I've got this correctly this idea
